@@ -1,1 +1,1 @@
-# My Portfolio as starting to my Web Developer Journey
+# My Portfolio as starting to my Web Designing Journey
